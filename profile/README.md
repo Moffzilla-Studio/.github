@@ -6,6 +6,7 @@ More info coming soon.
 📫 **Contact Information:**
 - Discord User: guite
 - Bluesky: [@guite-emortal.bsky.social](https://bsky.app/profile/guite-emortal.bsky.social)
+- Bluesky: [@hanamaetnn.bsky.social](https://bsky.app/profile/hanamaetnn.bsky.social)
 - Project E-Mail: moffzilla.studio@gmail.com
 <!--
 

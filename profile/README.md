@@ -1,5 +1,5 @@
 ## __**Moffzilla Studio**__
-Who are we?: Hi there! 👋 We are a husband and wife game development team working together to make our idea of fun games. 
+**Who are we?:** Hi there! 👋 We are a husband and wife game development team working together to make our idea of fun games. 
 More info coming soon.
 
 
